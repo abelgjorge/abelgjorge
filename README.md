@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @abelgjorge
-- 👀 I’m interested in bussines and energy
+- 👀 I’m interested in business and energy
 - 🌱 I’m currently learning about energy and data
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
